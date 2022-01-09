@@ -1,0 +1,2 @@
+# gg.nft
+nft boy
